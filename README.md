@@ -17,6 +17,5 @@ https://bom.firpo.ru/Public/87
 ![image](https://github.com/user-attachments/assets/a91224de-8cf2-4ec5-bdd6-3afb6c4cd09f)
 ![image](https://github.com/user-attachments/assets/0a5dffde-bfaa-4558-a4f9-fc1a555d3b16)
 ![image](https://github.com/user-attachments/assets/028efd94-3cf6-43e1-8966-bcd9c535a619)
-[Uploading NoOshibka.sql…]()
-[bd- orgtex.sql.tar.gz](https://github.com/user-attachments/files/16975894/bd-.orgtex.sql.tar.gz)
-[NoOshibka.sql.tar.gz](https://github.com/user-attachments/files/16975891/NoOshibka.sql.tar.gz)
+
+
