@@ -17,7 +17,8 @@ https://bom.firpo.ru/Public/87
 ![image](https://github.com/user-attachments/assets/a91224de-8cf2-4ec5-bdd6-3afb6c4cd09f)
 ![image](https://github.com/user-attachments/assets/0a5dffde-bfaa-4558-a4f9-fc1a555d3b16)
 ![image](https://github.com/user-attachments/assets/028efd94-3cf6-43e1-8966-bcd9c535a619)
-[https://ru.yougile.com/team/adb4906327c0/%D0%B7%D0%B0%D0%B4%D0%B0%D1%87%D0%B8](https://ru.yougile.com/team/adb4906327c0/%D0%B7%D0%B0%D0%B4%D0%B0%D1%87%D0%B8)
+https://ru.yougile.com/board/2j4zm6xqk81t
+
 
 
 
