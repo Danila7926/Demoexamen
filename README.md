@@ -18,7 +18,7 @@ https://bom.firpo.ru/Public/87
 ![image](https://github.com/user-attachments/assets/0a5dffde-bfaa-4558-a4f9-fc1a555d3b16)
 ![image](https://github.com/user-attachments/assets/028efd94-3cf6-43e1-8966-bcd9c535a619)
 https://ru.yougile.com/board/2j4zm6xqk81t
-
+https://drive.google.com/file/d/1qAd69P8jdRwxdqsugmNjtcjy8r8_A8Ot/view?usp=sharing
 
 
 
